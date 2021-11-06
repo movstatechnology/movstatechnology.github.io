@@ -1,1 +1,0 @@
-# movstatechnology.github.io
